@@ -109,6 +109,6 @@ Made with ❤️ by Mani Karthik
 
 ---
 
-### 📧 Email: manikarthik@example.com
+### 📧 Email: manikarthik.s1143@gmail.com
 
-**Happy Coding! 💻**
+
